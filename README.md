@@ -1,4 +1,4 @@
-## Hi there, I'm Yan Victor! 👋
+## Hi there, I'm Yan Ferreira! 👋
 
 I'm an undergraduate student majoring in Control and Automation Engineering at the Federal University of Minas Gerais 🛠️
 
